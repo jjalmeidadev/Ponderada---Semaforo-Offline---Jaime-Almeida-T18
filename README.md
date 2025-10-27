@@ -1,0 +1,1 @@
+# Ponderada---Sem-foro-Offline---Jaime-Almeida-T18
