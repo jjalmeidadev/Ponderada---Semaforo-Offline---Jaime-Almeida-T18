@@ -57,3 +57,5 @@ Entre os dois jumpers que traziam a corrente, posicionei primeiramente os jumper
 
 https://drive.google.com/file/d/1qXG8YjNb3jRoF1ajZna2lPTUk8771uZG/view?usp=sharing 
 
+Remontagem com figura de semáforo: https://drive.google.com/file/d/1NrosWk0lDWyJ4yWFb6XSFhEXzmkQggu8/view?usp=sharing
+
